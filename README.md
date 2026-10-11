@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am in BE-IT of my 2nd year <br>currently learning Devops<br>also interested about cloud 
+i am in BE-IT of my 3nd year <br>currently learning Devops<br>also interested about cloud 
 
 
 ## 🌐 Socials:
